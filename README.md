@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Arid3n
+- 👀 I’m interested in weiners
+- 🌱 I’m currently learning weiners
+- 💞️ I’m looking to collaborate on weiners
+- 📫 How to reach me weiners
